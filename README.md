@@ -1,3 +1,3 @@
-Alessio Cocco, Computer Engineer
+Alessio Cocco, Computer Engineer Student
 
 IT Department @ ZetaFarmaceutici
